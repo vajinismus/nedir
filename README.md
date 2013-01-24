@@ -1,5 +1,10 @@
-nedir
+vajinismus nedir?
 =====
+
+http://www.vajinismus.eu/
+http://vajinismus-vajinismus.com/
+http://www.drcemkece.com/
+http://www.vajinismus1.com/
 
 vajinismus nedir?
 
